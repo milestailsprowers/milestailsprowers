@@ -39,8 +39,7 @@
   
   $${\color{#FFD73F}\text{tails heavykin + laffy and cream kin}}$$
 
-
-
+note: 13 AND UNDER DO NOT INTERACT WITH ME (unless were friends already ^^). im really not comfortable associating with people who may lack maturity. im not saying im suddenly so mature and so wise now that im turning 16, but there is a maturity gap between 16 and 13 that i am not comfortable with. please respect my boundaries and avoiding talking to me or about me… thank you @_@ 
 
 <p>
 
