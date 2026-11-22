@@ -39,7 +39,7 @@
   
   $${\color{#FFD73F}\text{tails heavykin + laffy and cream kin}}$$
 
-note: 13 AND UNDER DO NOT INTERACT WITH ME (unless were friends already ^^). im really not comfortable associating with people who may lack maturity. im not saying im suddenly so mature and so wise now that im turning 16, but there is a maturity gap between 16 and 13 that i am not comfortable with. please respect my boundaries and avoiding talking to me or about me… thank you @_@ 
+heres a (targeted) pro-tip: nobody’s gonna like you if you gossip about everyone. the things i’ve seen you say about people publicly.. what NASTY things do you say when you’re really alone? youve talked shit about my friends and indirectly (yet purposely) invalidated my identity. ive never seen anyone act FURTHER from their own kin. youre just disgusting and one day i hope you get real karma
 
 <p>
 
