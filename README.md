@@ -38,8 +38,8 @@
   $${\color{#FFD73F}\text{and sign my atabook if you think im cool..!! }}$$  
   
   $${\color{#FFD73F}\text{tails heavykin + laffy and cream kin}}$$
-
-heres a (targeted) pro-tip: nobody’s gonna like you if you gossip about everyone. the things i’ve seen you say about people publicly.. what NASTY things do you say when you’re really alone? youve talked shit about my friends and indirectly (yet purposely) invalidated my identity. ive never seen anyone act FURTHER from their own kin. youre just disgusting and one day i hope you get real karma
+  
+not doing so well iwec
 
 <p>
 
