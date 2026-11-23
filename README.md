@@ -37,7 +37,7 @@
 
   $${\color{#FFD73F}\text{and sign my atabook if you think im cool..!! }}$$  
   
-  $${\color{#FFD73F}\text{THE TAILS AND CREAM FICTIONKIN OF PONY TOWN!!}}$$  
+  $${\color{#FFD73F}\text{TAILS FICTIONKIN}}$$  
 
 <p>
 
