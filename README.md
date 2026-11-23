@@ -29,7 +29,7 @@
 
 
 
-   [strawpage](https://mintcandy.straw.page) •   [atabook](https://milestailsprower.atabook.org)
+   [strawpage](https://mintcandy.straw.page) •   [atabook](https://milestailsprower.atabook.org) • [pronouns](https://en.pronouns.page/@tailsthefox) • [guns.lol](https://guns.lol/milestailsprower)
 
 
     
