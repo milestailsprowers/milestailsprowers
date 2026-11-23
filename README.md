@@ -37,9 +37,10 @@
 
   $${\color{#FFD73F}\text{and sign my atabook if you think im cool..!! }}$$  
   
-  $${\color{#FFD73F}\text{tails heavykin + laffy and cream kin}}$$
   
-cream the rabbit doesnt bully and mock people she doesn’t like. she doesn’t gossip about people when she thinks they aren’t listening. cream the rabbit is kind and gentle. i think i wanna be like her. @creamerie ❤️ 
+cream the rabbit doesnt bully and mock people she doesn’t like. she doesn’t gossip about people when she thinks they aren’t listening. cream the rabbit would never make anyone the butt of the joke purely because she has grudges against them. cream the rabbit is kind and gentle. i think i wanna be like her. @creamerie ❤️ 
+
+also happy sweet sixteen to me 🎉 
 
 <p>
 
