@@ -39,7 +39,7 @@
   
   $${\color{#FFD73F}\text{tails heavykin + laffy and cream kin}}$$
   
-not doing so well iwec
+cream the rabbit doesnt bully and mock people she doesn’t like. she doesn’t gossip about people when she thinks they aren’t listening. cream the rabbit is kind and gentle. i think i wanna be like her. @creamerie ❤️ 
 
 <p>
 
