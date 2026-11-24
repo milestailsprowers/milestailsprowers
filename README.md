@@ -37,7 +37,8 @@
 
   $${\color{#FFD73F}\text{and sign my atabook if you think im cool..!! }}$$  
   
-  $${\color{#FFD73F}\text{TAILS FICTIONKIN}}$$  
+i suffer from anxiety attacks a lot and they make me do things that are very out of character and senseless. i apologize for everybody i have hurt and will hurt q_q.. i of course dont mean to, but that’s not an excuse and i hold myswlf 100% accountable for the dumb things i may do or say. just wanted to write this as ive been especially anxious lately
+
 
 <p>
 
