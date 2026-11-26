@@ -102,9 +102,10 @@ i suffer from anxiety attacks a lot and they make me do things that are very out
 
 
 
-<img width="387" height="516" alt="Untitled318_20261108105644" src="https://github.com/user-attachments/assets/91b94473-9d3d-425c-a310-915150b77c20" />
 
 
+
+<img width="387" height="516" alt="Untitled318_20261126092755" src="https://github.com/user-attachments/assets/460e98cb-91c3-4711-811c-a6a5937bb4d9" />
 
 
 
