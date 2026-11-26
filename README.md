@@ -1,9 +1,10 @@
 <div align="center">
 
 
-<img width="736" height="245" alt="Untitled282_20261108103412" src="https://github.com/user-attachments/assets/2afead58-bd12-450c-8c98-fc1e43389587" />
 
 
+
+<img width="736" height="245" alt="Untitled282_20261126092624" src="https://github.com/user-attachments/assets/603a337f-a554-4244-a6bb-c0dc9c8ba8c1" />
 
 
 
