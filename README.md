@@ -37,8 +37,8 @@
   $${\color{#FFD73F}\text{read my strawpage if you wanna learn more about me}}$$
 
   $${\color{#FFD73F}\text{and sign my atabook if you think im cool..!! }}$$  
-  
-i suffer from anxiety attacks a lot and they make me do things that are very out of character and senseless. i apologize for everybody i have hurt and will hurt q_q.. i of course dont mean to, but that’s not an excuse and i hold myswlf 100% accountable for the dumb things i may do or say. just wanted to write this as ive been especially anxious lately
+
+  amy x tails shippers HEAVY dni. amy is 12 and tails is 8. even though sega removed canon ages, tails is still kid coded and amy is not. dnidnidnidni 
 
 
 <p>
