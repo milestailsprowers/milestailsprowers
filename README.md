@@ -38,7 +38,7 @@
 
   $${\color{#FFD73F}\text{and sign my atabook if you think im cool..!! }}$$  
 
-  amy x tails shippers HEAVY dni. amy is 12 and tails is 8. even though sega removed canon ages, tails is still kid coded and amy is not. dnidnidnidni 
+  amy x tails shippers HEAVY dni. amy is 12 and tails is 8. even though sega removed canon ages, tails is still kid coded and amy is not. also amy is like my sister so dnidnidnidni 
 
 
 <p>
