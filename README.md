@@ -38,7 +38,7 @@
 
   $${\color{#FFD73F}\text{and sign my atabook if you think im cool..!! }}$$  
 
-  amy x tails shippers HEAVY dni. 
+
 
 
 <p>
